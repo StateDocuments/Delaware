@@ -1,6 +1,1 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/1223053528.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/coming-soon.png)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/webcam-coastal-kayak-fenwick-is-de-400x300-001.png)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/webcam-north-surf-bethany-beach-de-400x300-002.png)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/webcam-paradise-drill-lagoon-400x300-001.png)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Delaware/blob/master/webcam-south-bethany-beach-de-400x300-002.png)
